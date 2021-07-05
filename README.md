@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DarkMaster964 and I'm an ambitious highschooler who wants to become software engineer :D
+- 👀 I’m interested in creating software in the best way possible.
+- 🌱 I’m currently learning ethical hacking, so I can become one of the white hats B)
+- 💞️ I’m looking to collaborate, when I make my own company and become greatest leader who can make everyone happy :)
+- 📫 How to reach me - nvb564207@gmail.com
